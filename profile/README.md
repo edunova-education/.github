@@ -5,7 +5,7 @@
 
 🌐 **Site officiel** : [https://edunova.cm](https://edunova.cm)  
 🎯 **Démonstration active** : [https://demo.edunova.cm](https://demo.edunova.cm)  
-📧 **Contact partenariats** : contact@edunova.cm
+📧 **Contact partenariats** : albertk.explorer@gmail.com
 
 ---
 
